@@ -28,8 +28,8 @@ src="https://media.tenor.com/oB8vZ5uuIsAAAAAM/roguefort-cookie.gif">
   - ###### My main interests are Phighting, Regretevator, Amphibia and Arcane x3 I'm also getting really into Madoka cuz of my partner LOL
 
 - ###### idk what to put there uhhh pls sign my strawpage!!
-
-
+‎ 
+‎ 
 <div align="center">
 <img width = "15%"
 src="https://media.tenor.com/hVw0vM_CjMEAAAAj/cookie-run.gif">
