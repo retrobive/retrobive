@@ -1,9 +1,10 @@
 <div align="center">
-	<img width = "85%" src="https://media.tenor.com/6AxCpBbUv94AAAAM/cookie-run-roguefort-cookie.gif">
+	<img width = "90%" src="https://media.tenor.com/6AxCpBbUv94AAAAM/cookie-run-roguefort-cookie.gif">
 </div>
 ‎ 
 <div align="center">
-	🧀
+	<img width = "15%"
+		src="https://media.tenor.com/hVw0vM_CjMEAAAAj/cookie-run.gif">
 </div>
 
 - ###### Hello fellow ponytowner! I'm a 14 years old Brazilian. Feel free to call me whatever you want to, as I do **not** have an online name. I do get called Bee, Cheese and Retrobive a lot though!
@@ -31,6 +32,6 @@ src="https://media.tenor.com/oB8vZ5uuIsAAAAAM/roguefort-cookie.gif">
 ‎ 
 ‎ 
 <div align="center">
-<img width = "15%"
-src="https://media.tenor.com/hVw0vM_CjMEAAAAj/cookie-run.gif">
+<img width = "25%"
+src="https://media.tenor.com/XFrjwRYqFgYAAAAM/cookie-run-roguefort-cookie.gif">
 </div>
