@@ -22,7 +22,7 @@ src="https://media.tenor.com/oB8vZ5uuIsAAAAAM/roguefort-cookie.gif">
     - ###### Besides the DW thing, I don't care that much about who interacts with me on ponytown. Just avoid interacting if you're a weirdo, proshipper or don't like minors. This doesn't mean racists and whatnot can interact btw.
    
 - ###### I have A LOT of cosplays, but am usually cosplaying Skateboard, Mach And Cheese, Sword or my oc! I only cosplay Shuriken or Stargazer if I'm with a friend or upset (the skins have iwc in the name and im lazy to change lol)
-  - ###### I'm usually sitting alone cuz I don't know many people lol, but feel free to int! I don't bite but may be a bit awkward ^_^
+  - ###### I'm usually sitting alone cuz I don't know many people lol, but feel free to int! I don't bite but may be a bit awkward cuz of my lack of social skills and constant change of personality ^_^
     - ###### If you notice me copying a characters personality I swear it's not intentionally
  
 - ###### I have a lot of interests! But it's also very common for me to cosplay characters from shows I've never watched, games I've never played, and so on. Feel free to recommend me some games, shows or ask me if I've watched/played something!
