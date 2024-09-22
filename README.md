@@ -8,7 +8,7 @@
 </div>
 
 - ###### Hello fellow ponytowner! I'm a 14 years old Brazilian. Feel free to call me whatever you want to, as I do **not** have an online name. I do get called Bee, Cheese and Retrobive a lot though!
-  - ###### I have my c'links and sometimes refer to myself as them, but I am not am irl, introject or anything like that. Reality checking me will make you look stupid.
+  - ###### I have my c'links and sometimes refer to myself as them, but I am not an irl, introject or anything like that. Reality checking me will make you look stupid.
     - ###### I'm queer ?? homophobes/transphobes please don't interact😭😭
 ‎ 
 <div align="center">
