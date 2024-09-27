@@ -19,7 +19,7 @@ src="https://media.tenor.com/oB8vZ5uuIsAAAAAM/roguefort-cookie.gif">
 
 - ###### I am on the Phighting area most of the time, but sometimes am at Party Island making skins/with my partner or am at the spot under the Regretevator/DW area!
   - ###### I think it's important to note that I do not support Dandy's World and don't want anyone who does to interact with me. Although I do have a Shrimpo and Glisten cos, I have never played the game as playing the game **IS** supporting them.
-    - ###### Besides the DW thing, I don't care that much about who interacts with me on ponytown. Just avoid interacting if you're a weirdo, proshipper or don't like minors. This doesn't mean racists and whatnot can interact btw.
+    - ###### Besides the DW thing, I don't care that much about who interacts with me on ponytown. Just avoid interacting if you're a weirdo, proshipper or don't like minors. I block/hide freely.
      - ###### I genuinely use the status in the game, which means online = online, away/busy = afk, and i don't use the others lol
    
 - ###### I have A LOT of cosplays, but am usually cosplaying Skateboard, Mach And Cheese, Sword, Poob or my oc! I only cosplay Shuriken or Stargazer if I'm with a friend or upset (the skins have iwc in the name and im lazy to change lol)
