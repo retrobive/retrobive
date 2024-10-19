@@ -7,7 +7,7 @@
 		src="https://media.tenor.com/hVw0vM_CjMEAAAAj/cookie-run.gif">
 </div>
 
-- ###### Hello fellow ponytowner! I'm a 14 years old Brazilian. Feel free to call me whatever you want to, as I do **not** have an online name. I do get called Bee, Cheese and Retrobive a lot though!
+- ###### Hello fellow ponytowner! I'm a 14 years old Brazilian. Feel free to call me whatever you want to, as I do **not** have an online name. I do get called Ally, Cheese and Retrobive a lot though!
   - ###### I have my c'links and sometimes refer to myself as them, but I am not an irl, introject or anything like that. Reality checking me will make you look stupid.
     - ###### I'm queer ?? homophobes/transphobes please don't interact😭😭
 ‎ 
