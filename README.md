@@ -17,3 +17,5 @@ lowkey don't wanna make this pretty uhmmmmmm
 - I am not an irl nor a system, any ponies that have 'me' on the name are fictionkins / I have the same personality as the character or are a joke
 
 - I always have one of my githubs linked (this one, elster-unit or touden-sibIings) unless it's a joke skin PLEASE STOP COPYING MY SKINS. they aren't even good bruh
+
+- Please DON'T make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me extremely uncomfortable. Idc if you do that with other people just don't do it with me
