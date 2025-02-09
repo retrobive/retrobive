@@ -16,7 +16,7 @@
 ► Not an IRL nor a system but I do have some fictionkins
 </p>
 <p align="center">
-► I always have this github, azuresz or touden-sibIngs linked unless it's a joke skin, otherwise it's not me
+► I always have this github, azuresz or touden-sibIings linked unless it's a joke skin, otherwise it's not me
 </p>
 <p align="center">
   ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me uncomfortable 
