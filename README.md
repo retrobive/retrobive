@@ -2,9 +2,8 @@
 
 lowkey don't wanna make this pretty uhmmmmmm
 
-- I am brazilian therefore english isnt my native language and I WILL make mistakes. You're free to correct me just be nice bruh
+► Cheese/Bee/Retrobive ((+)[https://pronouns.cc/retrobive]) , 14yo brazilian butch lesbian 
 
-- I am very socially awkward and anxious, I also tend not to talk to people if they aren't my friends/I don't consider them close so please always iwc
 
 - Sometimes I'll be as offline if I don't feel okay or If I feel uncomfortable and I forget to turn it back on so yeah
 
