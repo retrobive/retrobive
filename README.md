@@ -2,7 +2,7 @@ ac: ascii_txt
 ![20250211_214104](https://github.com/user-attachments/assets/5da56b0c-ed8b-407d-ba41-453158834a23)
 
 <p align="center">
-It ' s 　just 　what 　you 　did.
+It ' s 　just 　what 　you 　did 　.
 </p>
 
  　
