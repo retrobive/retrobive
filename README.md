@@ -14,6 +14,6 @@ It ' s 　just 　what 　you 　did 　.
 ► Pretty much always at PHIGHTING!/Roblox area unless I'm sitting somewhere else with my friends ,, I always have this github ,, azuresz or touden-sibIings linked unless it's a joke skin .
 </p>
 <p align="center">
-  ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me uncomfortable .
+  ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me uncomfortable ,, please also do avoid using typing quirks while talking to me .. they make it hard for me to read .
 </p>
 
