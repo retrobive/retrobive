@@ -7,7 +7,7 @@ It ' s 　just 　what 　you 　did 　.
 
  　
 <p align="center">
-  ► Socially awkward and anxious ,, I prefer not to talk to people I'm not friends with .. I make kys/kms jokes and am rude/mean jokingly .
+  ► Socially awkward and anxious ,, I prefer not to talk to people I'm not friends with .. I make kys/kms jokes and am rude/mean jokingly .. I make a lot of typos and misread often and am a bit slow ,, please be patient with me 
 </p> 
 </p>
 <p align="center">
