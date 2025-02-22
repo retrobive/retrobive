@@ -10,7 +10,7 @@ It ' s 　just 　what 　you 　did 　.
   ► Socially awkward and anxious ,, I prefer not to talk to people I'm not friends with . I make kys/kms jokes and am rude/mean jokingly . I make a lot of typos and misread often and am a bit slow ,, please be patient with me 
 </p> 
 <p align="center">
- I am very forgetful .  I'll probably forget who you are unless we're close ,, will also forget important things (like your pronouns/name - unless I have a friend note for you - or stuff you've told me..) .  My status is always set on online ,, otherwise I am afk . Please always whisper 2 interact !
+ ► I am very forgetful .  I'll probably forget who you are unless we're close ,, will also forget important things (like your pronouns/name - unless I have a friend note for you - or stuff you've told me..) .  My status is always set on online ,, otherwise I am afk . Please always whisper 2 interact !
 </p>
 <p align="center">
 ► Pretty much always at PHIGHTING!/Roblox area unless I'm sitting somewhere else with my friends ,, I always have this github ,, azuresz or touden-sibIings linked unless it's a joke skin .
