@@ -19,3 +19,6 @@ It ' s 　just 　what 　you 　did 　.
   ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me uncomfortable ,, please also do avoid using typing quirks while talking to me . They make it hard for me to read .
 </p>
 
+<p align="center">
+Side note; I don't have a style, I just do whatever I think looks cool. I also don't take inspo from anyone in specific.
+</p>
