@@ -16,7 +16,7 @@ Side note; I don't have a style, I just do whatever I think looks cool. I also d
  ► I am very forgetful .  I'll probably forget who you are unless we're close ,, will also forget important things (like your pronouns/name - unless I have a friend note for you - or stuff you've told me..) .  My status is always set on online ,, otherwise I am afk . Please always whisper 2 interact !
 </p>
 <p align="center">
-► Pretty much always at PHIGHTING!/Roblox area unless I'm sitting somewhere else with my friends ,, I always have this github ,, azuresz or touden-sibIings linked unless it's a joke skin .
+► Pretty much always at PHIGHTING!/Roblox area unless I'm sitting somewhere else with my friends ,, I always have this github ,, divine-resurrection or the-dreamsphere linked unless it's a joke skin .
 </p>
 <p align="center">
   ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me as they make me uncomfortable ,, please also do avoid using typing quirks while talking to me . They make it hard for me to read .
