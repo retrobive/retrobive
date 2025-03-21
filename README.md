@@ -6,7 +6,7 @@ It ' s 　just 　what 　you 　did 　.
 </p>
 
 <p align="center">
-Side note; I don't have a style, I just do whatever I think looks cool. I also don't take inspo from anyone in specific. My main inspo is my sibling, @love-bullet.
+Side note; I don't have a style, I just do whatever I think looks cool. I don't take inspo from anyone in specific, though my main inspo is my sibling, @love-bullet.
 </p>
  　
 <p align="center">
