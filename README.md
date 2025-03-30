@@ -1,10 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=retrobive&label=SPAWN)howdo i center this bruh
 
-ac: ascii_txt
-![20250211_214104](https://github.com/user-attachments/assets/5da56b0c-ed8b-407d-ba41-453158834a23)
+![coral-glasses-ena](https://github.com/user-attachments/assets/75d6014b-230c-4f0f-a483-c54839c6f9fb)
 
 <p align="center">
-It ' s 　just 　what 　you 　did 　.
+?!
 </p>
 
 <p align="center">
