@@ -1,4 +1,4 @@
-  　   　   　   　  　   　    　   　   　 ![](https://komarev.com/ghpvc/?username=retrobive&label=SPAWN)
+![](https://komarev.com/ghpvc/?username=retrobive&label=SPAWN)howdo i center this bruh
 
 ac: ascii_txt
 ![20250211_214104](https://github.com/user-attachments/assets/5da56b0c-ed8b-407d-ba41-453158834a23)
@@ -8,21 +8,36 @@ It ' s 　just 　what 　you 　did 　.
 </p>
 
 <p align="center">
-Side note; I don't have a style, I just do whatever I think looks cool. My main inspo is my sibling, @love-bullet.
+I don't have a style, I just do whatever I think looks cool. My main inspo is my sibling, @love-bullet.
 </p>
  　
 <p align="center">
-  ► Socially awkward and anxious, I make kys/kms jokes and am rude/mean jokingly. I make a lot of typos and misread often and am a bit slow, please be patient with me !
-</p> 
-<p align="center">
- ► I am very forgetful. My status is always set on online ,, otherwise I am afk . Please always whisper 2 interact !
+  ► Socially awkward and anxious, might now initiate conversations if we aren't close 
 </p>
 <p align="center">
-► Pretty much always at PHIGHTING!/Roblox area, unless I'm sitting somewhere else with my friends. I always have this github, divine-resurrection or nashatra-bealdhild linked unless it's a joke skin
-</p>
-<p align="center">
-  ► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me unless you're a close friend of mine, as they make me uncomfortable when coming from a stranger/someone I'm not close with. Please also do avoid using typing quirks while talking to me, they make it quite hard for me to read
-</p>
-<p align="center">
- ► I'm afk most of the time, if not I'm probably making skins, meaning I most likely can't type. My game also lags/crashes/freezes a lot so PLEASE w2i if you want an answer, as I might miss the messag due to lag or whatever..
+  ► I make kys/kms jokes and am rude/mean jokingly.
+  </p>
+  <p align="center">
+  ► I make a lot of typos and misread often and am a bit slow, please be patient with me !
+  </p>
+  <p align="center">
+ ► I am very forgetful. My status is always set on online, otherwise I am afk. Please always whisper 2 interact !
+  </p>
+  <p align="center">
+► Pretty much always at PHIGHTING!/Roblox area, unless I'm sitting somewhere else with my friends.
+  </p>
+  <p align="center">
+► I always have this github, divine-resurrection, nashatra-bealdhild or my twitter linked unless it's a joke skin
+  </p>
+  <p align="center">
+► Please don't make 'I'm gonna touch you' or 'You're fat/big' jokes with me unless you're a close friend of mine, as they make me uncomfortable when coming from a stranger/someone I'm not close with.
+  </p>
+  <p align="center">
+► Please also do avoid using typing quirks while talking to me, they make it quite hard for me to read
+  </p>
+  <p align="center">
+► I'm afk most of the time, if not I'm probably making skins, meaning I most likely can't type.
+  </p>
+  <p align="center">
+► My game also lags/crashes/freezes a lot so PLEASE w2i if you want an answer, as I might miss the messag due to lag or whatever..
 </p>
