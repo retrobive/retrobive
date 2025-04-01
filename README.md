@@ -9,3 +9,6 @@
 <p align="center">
 I don't have a style, I just do whatever I think looks cool. My main inspo is my sibling, @love-bullet.
 </p>
+
+
+read this rentry before you interact pls https://rentry.co/retrosstuff
