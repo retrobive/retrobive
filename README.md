@@ -1,9 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=retrobive&label=SPAWN)howdo i center this bruh
 
-![coral-glasses-ena](https://github.com/user-attachments/assets/75d6014b-230c-4f0f-a483-c54839c6f9fb)
+![mizisua-mizi](https://github.com/user-attachments/assets/2017dbca-60fe-4c9c-a126-6e24e90ea6ab)
+
 
 <p align="center">
-?!
+But if belief in God is human, if all I can do as a human is to believe...
 </p>
 
 <p align="center">
