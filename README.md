@@ -2,7 +2,7 @@
   <img width="50" src="https://komarev.com/ghpvc/?username=retrobive&label=☄️" alt="☄️">
 </p>
 
-<a href="https://rentry.co/retrobive">rentry WIPP</a> ‎  ‎  ‎  ‎  ‎  ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://twitter.com/retrobive">xitter</a> ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎ ‎  ‎   ‎ <a href="https://rentry.co/retrosstuff">pt info</a>
+<a href="https://rentry.co/retrobive">rentry WIPP</a> ‎  ‎  ‎  ‎  ‎  ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://twitter.com/retrobive">xitter</a> ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎ ‎  ‎   ‎ <a href="https://rentry.co/blamesme">pt info</a>
 
 <img src="https://github.com/user-attachments/assets/b8fd5cd9-706a-49ff-bb66-6448cc58a1af" alt="ally" width="400"/>
 
