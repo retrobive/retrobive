@@ -3,8 +3,11 @@
 
 <div align="center">
 <img src="https://github.com/user-attachments/assets/607764b1-5148-4e98-885f-cc3f72475726" alt="ally" width="400"/>
-‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ 
-<div align="center">
+
+  ‎  ‎  ‎  ‎  ‎  ‎  ‎ I’m falling for you
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ The moment I first saw you
+
+  <div align="center">
 
 15y himeyume⠀⠀⠀pt-br / eng
 
