@@ -4,9 +4,8 @@
 
 <div align="center">
 <img src="https://github.com/user-attachments/assets/6d86c7e0-815f-4a32-97d2-2fc4d48905b4" alt="ally" width="500"/>
-
-  ‎  ‎  ‎  ‎ I’m falling for you
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀ The moment I <a href="https://youtu.be/AJkX4ImaDEI?si=wnd4OBgmpRZ89EU4">first saw you</a>
+Until recently... I think I was
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀⠀ still in love with her.
 
   <div align="center">
 
