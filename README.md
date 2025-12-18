@@ -1,9 +1,10 @@
 
+
 <div align="center">
 ⠀⠀⠀ ⠀⠀<a href="https://rentry.co/retrobive">rentry</a> ‎  ‎  ‎  ‎  ‎  ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://rentry.co/blamesme">pt info</a> ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎ ‎  ‎   ‎ <a href="https://retrobive.straw.page">straw</a>
 
 <div align="center">
-<img src="https://github.com/user-attachments/assets/6d86c7e0-815f-4a32-97d2-2fc4d48905b4" alt="ally" width="500"/>
+<img src="https://github.com/user-attachments/assets/3f69376c-a6f5-4899-ae44-d64a473389a3" alt="ally" width="500"/>
 
  ⠀⠀ Until recently... I think I was
 ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ..still in love with her.
