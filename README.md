@@ -5,12 +5,6 @@
 
 <div align="center">
 <img src="https://github.com/user-attachments/assets/3f69376c-a6f5-4899-ae44-d64a473389a3" alt="ally" width="500"/>
-
- ⠀⠀ Until recently... I think I was
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ..still in love with her.
-
-  <div align="center">
-
 15y himeyume⠀⠀⠀pt-br / eng
 
 <a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
